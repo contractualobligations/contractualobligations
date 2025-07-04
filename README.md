@@ -28,6 +28,7 @@ volυмe : ▁▂▃▄▅▆▇▉<br/>
     Diagnosed AuDHD and suspected anxiety disorder<br/>
     I usually sit outside the bakery or in the roblox area<br/>
     I'm normally offtab or afk, though feel free to come sit with me!<br/>
+    DO NOT COVER. Thank you.<br/>
 </div><br/>
 <div align="center">
     ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
